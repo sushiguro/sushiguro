@@ -1,5 +1,5 @@
 <img width="1160" height="504" alt="image" src="https://github.com/user-attachments/assets/ecfde116-a8b0-4c00-be2a-c9b2894dded9" />
- ☆ hello!! im tide, im 17 and im a huge jjk and megumi fan. I lovelove making new friends and talking so please dont be scared to int with me!
+ ☆ hello!! im tide, im 17 and im a huge jjk and megumi fan. I love love making new friends! im a bit shy and can be a little quiet at first, but i love talking to others once im comfortable!!
 <br>
 <br>
 !!basic dni criteria, pro / darkshippers huge dni, and under 14 iwc!!

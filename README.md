@@ -9,5 +9,4 @@ some more stuff i really like: bleach, naruto, resident evil, genshin, astronomy
 <br>
 <br>
 <br>
-<br>
-<img width="4096" height="1714" alt="image" src="https://github.com/user-attachments/assets/34ca1a50-7f91-4cef-89c5-bcc8dced5aa6" />
+<img width="4092" height="904" alt="image" src="https://github.com/user-attachments/assets/8a7a692a-0047-4909-ba44-9d99fa48ed14" />
